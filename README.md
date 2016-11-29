@@ -1,2 +1,4 @@
 # Readme-now
 just one more Readme now
+i like coffee ,cookies ,chocolates, and music ,reading books , play indoor games etc..
+it just so wounderful of entertaining me
